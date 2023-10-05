@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mr-Frostyy
+- 👀 I’m interested in you
+- 🌱 I’m currently learning AI😈
+- 📫 How to reach me ... (don't)
